@@ -1,1 +1,1 @@
-hello! if you want to prepare for sat then you must know 3 main types of transitions in sat questions. This website is the best option for you keep every transition word in your mind. 
+
